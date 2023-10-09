@@ -5,4 +5,4 @@
   
 - 👀 I’m interested in first of all learning how not to create shit code
 
-- You can reach me on my telegramm in my bio
+- You can reach me on my telegramm/discord in my bio (just be sure to introduce yourself before)
