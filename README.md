@@ -1,5 +1,5 @@
 - 👋 Whats up, I’m Alex (@MrFloppyDisk)
-- I am a student from Russia, curently stydying in RTU MIREA one of the many Univercities here
+- I am a student from Russia, curently stydying in RTU MIREA one of the many Universities here
 - As of today, I am not that good of a programmer, I struggle with pretty much everything but that never stopped me
 
   
